@@ -12,5 +12,6 @@
 - chop onion
 - chop jalapeno
 - squeeze lime
-- add salt
-- and mix well
+- add pinch of salt
+- and mix well in bowl
+- eat finished product
